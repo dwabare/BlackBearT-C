@@ -1,7 +1,7 @@
-BlackBearT-C
+BlackBear Terms and Conditions
 Terms and Conditions for Black Bear ONE Live Free or Die 401 Club SMS Notifications
 Effective Date: April 13, 2025
-Welcome to Black Bear ONE Live Free or Die 401 Club! By subscribing to receive SMS notifications from Black Bear ONE, you agree to abide by the following Terms and Conditions. Please read them Live Free or Die 401efully.
+Welcome to Black Bear ONE Live Free or Die 401 Club! By subscribing to receive SMS notifications from Black Bear ONE, you agree to abide by the following Terms and Conditions. Please read them carefully.
 1.	Subscription to SMS Notifications
 By subscribing to receive SMS notifications, you acknowledge and agree to receive text messages related to Black Bear ONE Live Free or Die 401 Club events, meetups, and other club-related updates. Participation in receiving SMS notifications is voluntary, and you may opt-out at any time.
 1.	Use of Service
